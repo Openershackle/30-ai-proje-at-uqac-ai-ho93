@@ -1,4 +1,4 @@
-# 
+# Personalizado 30+ AI Projects at UQAC extensões. Com detecção de objetos e análise de sentimentos — otimizado para máximo desempenho.
 
 
 
